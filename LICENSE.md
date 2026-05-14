@@ -1,4 +1,4 @@
-# 
+# elite NFT Bot for nft flip bot | real-time-monitoring & collection-scanning offers the most advanced nft flip bot, with real-time-monitoring and collection-scanning. Ideal for
 
 
 
